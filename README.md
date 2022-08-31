@@ -22,6 +22,7 @@
 - **[NNEJI IFEANYI DANIEL](https://github.com/Nneji123)**
 - **[OKAI OKO RAPHAEL](https://github.com/JayRalph360)**
 - **[RICHARD KOFI ADUKONU](https://github.com/SelormKofi)**
+- **[SOMTOCHUKWU OGUCHIENTI] (https://github.com/Sohmtee)**
 
 
 ## Table of Contents
